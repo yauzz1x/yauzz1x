@@ -1,5 +1,5 @@
 - 👋 Hi, I’m yauzz
-- 👀 I’m interested in legal lokis
+- 👀 I’m interested in legal lolis
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on nothing 
 - 📫 don't look at me plz
